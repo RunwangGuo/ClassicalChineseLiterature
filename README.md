@@ -1,3 +1,4 @@
 # ClassicalChineseLiterature
 
-- [Chibi Fu.md](Chibi Fu.md)
+- [Chibi Fu](./Chibi%20Fu.md)
+
