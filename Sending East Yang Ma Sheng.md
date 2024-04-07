@@ -1,0 +1,9 @@
+​	
+
+​	In my youth, I was eager to learn. My family was poor, and I couldn't afford to buy books, so I would borrow them from others, copying them by hand, and return them on time. During the cold winter, the ink would freeze solid, and my fingers would be too stiff to bend, but I wouldn't let that stop me. After copying, I would deliver the books, never daring to delay. As a result, many people borrowed books from me, allowing me to read a wide range of books. Once I became an adult, I yearned for the wisdom of the sages and was troubled by not having a distinguished teacher or a famous person to learn from. I even went as far as 100 miles away, seeking out the elders of the local villages to ask about the teachings.
+
+​	The elders, though kind, never lowered their standards or showed favoritism. I would stand on the left and right, helping to clarify doubts and questions, listening attentively. If they were angry, I would be even more courteous and respectful, not daring to speak back. Only after they were pleased would I ask again. Despite being ignorant, I managed to learn something.
+
+​	When I was a student, I sometimes carried a stool and a mat, traveling through deep mountains and vast valleys. In the depths of winter, the wind was fierce, and the snow was deep, causing my skin to peel and not knowing the pain. Upon reaching the inn, I could barely move my limbs, and the hostess would pour hot water over me, wrapping me in a quilt, and it would take a long time before I felt better. While staying at the inn, the host would offer me meals without any fresh or delicious ingredients. The other guests were all dressed in luxurious clothes, wearing jewels and precious stones, and they looked like gods. I, on the other hand, wore worn-out clothes, and I didn't feel envious. Indeed, my life was hard and laborious.
+
+Author: Song Lian, Ming Dynasty, "Sending East Yang Ma Sheng"
